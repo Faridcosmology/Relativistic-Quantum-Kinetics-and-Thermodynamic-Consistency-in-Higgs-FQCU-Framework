@@ -1,0 +1,1 @@
+# Relativistic-Quantum-Kinetics-and-Thermodynamic-Consistency-in-Higgs-FQCU-Framework
